@@ -1,2 +1,0 @@
-# naishagarwal.github.io
-website
